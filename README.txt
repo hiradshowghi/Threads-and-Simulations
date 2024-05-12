@@ -1,0 +1,3 @@
+Final Project - Hirad Showghi Sarkhosh - 101272774
+
+*I have had a very rough couple of weeks dealing with some things and haven't been able to study on this course & finish the project properly. I tried to do as much as possible but I am still getting many errors and it's very frustrating. Please be as generous as you can, I know I cannot get much marks but I need at least 6% from this to not fail the course and I have had good marks on my assignments which I spent time on and my circumstances don't reflect my work well and I am very stressed. Please and thank you.*
